@@ -1,5 +1,6 @@
 # Hi! I'm Y.lau and I love building stuff. 
-![image](https://github.com/user-attachments/assets/995f0ef7-eb41-4f49-9b5b-6fa3f6a8114a)
+![image](https://github.com/user-attachments/assets/3ba16360-51c0-4b4c-a07e-9639861095aa)
+
 
 👋 Hi there!
 
